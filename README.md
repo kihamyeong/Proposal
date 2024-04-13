@@ -1,4 +1,4 @@
-# Anti-rejectionProposalPrank.github.io
+# Anti-rejectiongithub.io
 You can't say no to this proposal.                                                                                                                                       
 
 Visit link here: https://andrejarl.github.io/Anti-rejectionProposalPrank.github.io/proposal.html
